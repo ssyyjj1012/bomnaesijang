@@ -1,7 +1,7 @@
 # 봄내시장
 
 ## 봄내
-**봄 춘, 내 천으로 춘천의 다른 말**
+**봄 춘 (春), 내 천 (川)으로 춘천의 다른 말**
 
 <img width="636" alt="image" src="https://user-images.githubusercontent.com/52689953/200017340-7bf2bbc5-c038-4a92-bdb0-cd290744a36e.png"> 
 
